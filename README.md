@@ -1,1 +1,2 @@
 # ENGL378W-Portfolio
+Hello! Welcome to my portfolio for AASPI/ENGL378W: Deep Time: Memory, Media, and Ecological Imagination in the Americas. Please enjoy reading through my process statement, blog posts, cover letter, and going through my final project pieces in Twine, and my zine design in Canva. This semester in this course allowed me to think deeply about many different themes and subjects and it is my hope that that deeper thinking is reflected through this portfolio. - Noor Qureshi
